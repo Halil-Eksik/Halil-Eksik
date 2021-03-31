@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Halil-Eksik
+- 👀 I’m interested in computing
+- 🌱 I’m currently learning arduino
+- 📫 How to reach me: instagram the_BarisSavascisi
